@@ -1,2 +1,3 @@
-# Bubb1e
-My personal repository
+# About me 🎏
+My personal repository 🍈
+An international high school student in BeiJing. 
